@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **promisejeremiah4@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/promisejeremiahcv.herokuapp.com](https://promisejeremiah.co)
+- 📄 Know about my experiences [https://promisejeremiah.co](https://promisejeremiah.co)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
